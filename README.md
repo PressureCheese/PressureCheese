@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PressureCheese
-- 👀 I’m interested in: In
-- 🌱 I’m currently learning: Learning
-- 💞️ I’m looking to collaborate on: Collaboration
+- 👀 I’m interested in: Myself
+- 🌱 I’m currently learning: How to have a smaller ego.
+- 💞️ I’m looking to collaborate on: Nothing.
 - 📫 How to reach me: Stretch
 - 😄 Pronouns: He/He
 - ⚡ Fun fact:
