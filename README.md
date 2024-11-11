@@ -2,7 +2,7 @@
 - 👀 I’m interested in: In
 - 🌱 I’m currently learning: Learning
 - 💞️ I’m looking to collaborate on: Collaboration
-- 📫 How to reach me: Strech
+- 📫 How to reach me: Stretch
 - 😄 Pronouns: He/He
 - ⚡ Fun fact:
 
